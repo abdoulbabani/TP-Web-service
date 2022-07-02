@@ -23,3 +23,9 @@ f47.png)
 
 
 ![Capture d’écran 2022-07-02 à 21 25 25](https://user-images.githubusercontent.com/68701658/177015580-2f3b3a6f-8f2c-449c-b9a1-222c48e383a4.png)
+![Capture d’écran 2022-07-02 à 20 10 36](https://user-images.githubusercontent.com/68701658/177015740-d7a59540-2aba-4e33-8dfa-5328f9279b08.png)
+
+![Capture d’écran 2022-07-02 à 20 49 47](https://user-images.githubusercontent.com/68701658/177015741-2648d02d-11c1-4979-bea0-7d3b822db6ae.png)
+
+
+
